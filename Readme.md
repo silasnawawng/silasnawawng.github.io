@@ -1,0 +1,7 @@
+## SOURCE CODE META FOR THIS STATIC PAGE
+
+`0947011867`
+password
+
+###CONTRIBUTERS
+silasnawawng@gmail.com
